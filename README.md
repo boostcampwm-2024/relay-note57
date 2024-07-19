@@ -1,7 +1,14 @@
 # relay-note57
 
+<img width="350" alt="밥" src="https://github.com/user-attachments/assets/d8741cc3-d8d5-4793-a077-e00f9fccd9bb">
+<img width="350" alt="비둘기" src="https://github.com/user-attachments/assets/63fd71cc-a204-4b18-848e-79b1affdaa62">
+
+
+<img >
+
 ## 👋🏻 반갑습니다
-릴레이 노트57에 오신 캠퍼분들! 맨 아래의 방명록에 한마디씩 남겨주세요 😊
+릴레이 노트57에 오신 캠퍼분들! 맨 아래의 방명록에 한마디씩 남겨주세요 😊 <br>
+🎵 추천 [Bgm](https://www.youtube.com/watch?v=dQw4w9WgXcQ)도 듣고 가세요!
 
 <br><br>
 
